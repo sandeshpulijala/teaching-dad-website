@@ -83,6 +83,7 @@ Ready to improve your English? Contact me today!
 | 💬 **WhatsApp** | [+91 90590 34070](https://wa.me/919059034070) (Click to chat) |
 | 📧 **Email** | [pvraopulijala1965@gmail.com](mailto:pvraopulijala1965@gmail.com) |
 | 🎥 **YouTube** | [@pvraoenglish](https://www.youtube.com/@pvraoenglish) |
+| 📸 **Instagram** | [@pvrao555](https://www.instagram.com/pvrao555) |
 
 ---
 
